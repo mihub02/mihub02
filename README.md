@@ -1,7 +1,7 @@
 ## mihub02
 <div align="center">
 
-# 👋 Hi, I'm Jay  
+# 👋 Hi, I'm Maeve 
 ### Curious Builder · Learning by Doing
 
 <br/>
